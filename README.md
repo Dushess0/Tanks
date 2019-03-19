@@ -9,7 +9,7 @@ Music IDKFA album(https://www.youtube.com/watch?v=AGK1dr-Ql0w)
 You can click on help for view short and SIMPLE manual for game.
 Customize your tank by pressing grey buttons.
 
-If you have any questions or propositions please write me via Telegram @Dushess0
+If you have any questions or propositions please write me via Telegram @Dushess0 .
 Thanks You!
 
 
